@@ -26,6 +26,8 @@
 
 - [batata palha](https://blog.tudogostoso.com.br/cardapios/receitas-faceis/receitas-com-batata-palha/) a gosto
 
+- 1 colher de oregano
+
   ### Modo de preparo
 
   1. Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
